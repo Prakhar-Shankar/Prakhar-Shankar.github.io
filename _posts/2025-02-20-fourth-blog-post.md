@@ -8,3 +8,5 @@ I was feeling this thing these days. I was not able to concentrate on one thing 
 to pick up my phone even for 15 mintues but that at the end of the day sums up to hours and I also I asked myself why I am getting so sympathetic towards me. Why I needed the break.
 
 Hence for the solution I started meditating surely got the results but still that itch to check the phone stayed. Hence I deleted all the social media application Day1 well spent lets see how will I do in future.
+
+Thanks
