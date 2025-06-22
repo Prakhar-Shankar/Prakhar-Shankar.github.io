@@ -1,6 +1,9 @@
 ## The Fall by Albert Camus
 Do you believe you’re a good person—or do you just act like one?
 
+![image](https://github.com/user-attachments/assets/bf063447-6d05-41c3-8830-fe2dcd6daf0b)
+
+
 ### Chapter 1 - Mexico City 
 We find ourselves in a dim, smoky bar in Amsterdam called Mexico City—a place that feels distant, almost forgotten by the world. The setting isn’t incidental; it’s a mirror to the inner landscape of our narrator, Jean-Baptiste Clamence—a polished, eloquent, and once-successful Parisian lawyer. The bar’s murkiness, its isolation, echoes the moral fog Clamence now inhabits. The entire novel unfolds as a continuous monologue, with Clamence speaking to an unnamed listener—YOU.
 
