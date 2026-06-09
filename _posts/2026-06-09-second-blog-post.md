@@ -48,4 +48,4 @@ Russell does not fully accept either Berkeley's or Leibniz's conclusions. Instea
 
 The chapter ultimately leaves us with a profound lesson. The world that seems so obvious in everyday life becomes mysterious the moment we begin to examine it carefully. What appears to be a simple table turns into a philosophical puzzle. The distinction between appearance and reality forces us to question whether the world is truly as it presents itself to us.
 
-Rather than providing final answers, Russell's first chapter invites us to embrace uncertainty and begin the philosophical journey. The ordinary object sitting in front of us may be far more mysterious than we ever imagined.
+Rather than providing final answers, Russell's first chapter invites us to embrace uncertainty and begin the philosophical journey. The ordinary object sitting in front of us may be far more mysterious than we ever imagined. The questions now is, is matter real? If so then what is its nature?
