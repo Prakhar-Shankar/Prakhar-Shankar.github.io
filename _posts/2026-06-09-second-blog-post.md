@@ -1,4 +1,4 @@
-# Chapter 1: Appearance and Reality
+# Bertrand Russell and the Problem of Reality
 
 Is there any knowledge in the world so certain that no reasonable person could doubt it?
 
